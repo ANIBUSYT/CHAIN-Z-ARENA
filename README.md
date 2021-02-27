@@ -1,1 +1,2 @@
-# CHAIN-Z-ARENA
+# CHAIN-Z-ARENA¿Qué es ChainZ Arena?
+JUEGA TU PROPIO NEGOCIO: JUEGA Y GANA en Chainz Arena. Cuando los demonios atacan la tierra de ChainZ Arena, comienza la conquista para la batalla, al combinar los poderes del FUEGO, LA TIERRA, LA MADERA y el AGUA en la arena medieval, el poder de salvar este reino es tuyo. CONVOCA a tus héroes, CONSTRUYE tu ejército y LUCHA contra los demonios malvados y los jefes en la legendaria 'Arena'. RECOGE el todopoderoso 'martillo' o el precioso 'Oro' para reunir sus recursos y equipar a su equipo. ¡Míralos SUBIR de nivel y hacerse más fuertes en un equipo de poder imparable de HÉROES en ChainZ Arena!
